@@ -5,7 +5,7 @@
 
 - 🐉 I’m currently upgrading my skills with **Build 50 Real World React Projects Udemy**
 
-- 🔗 I’m looking to collaborate on **New exciting projects**
+- 🔗 I’m looking to collaborate on **Exciting projects to grow my career, collaborate, and work in teams. I can bring energy, passion, and a love of visual details**
 
 - 🌸 Ask me about **Why I love coding**
 
@@ -13,7 +13,7 @@
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/1Z-GTQfoMBx13q6zEVwa7cBawoBGjVFR_/view?usp=sharing](https://drive.google.com/file/d/1Z-GTQfoMBx13q6zEVwa7cBawoBGjVFR_/view?usp=sharing)
 
-- ⚡ Fun fact **I think im funny in both languages Spanish and English**
+- ⚡ Fun fact **I think I'm funny in both languages Spanish and English**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
